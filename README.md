@@ -7,4 +7,5 @@
 
 - Segunda pantalla
 
-![image](https://github.com/user-attachments/assets/80f2f503-e4dd-4229-9a74-f1e89a228506)
+![image](https://github.com/user-attachments/assets/014d320c-ab03-41b6-a2d7-24b4627fff83)
+
